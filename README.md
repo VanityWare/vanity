@@ -1,3 +1,1 @@
-# vanity
-Coded by fault#1337 & Afterlife#1337
-https://discord.gg/atlascheats - best ud cheats
+selling domain - dm on discord @Afterlife#1337
